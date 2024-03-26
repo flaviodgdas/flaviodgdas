@@ -1,6 +1,6 @@
 - 👋 Olá, sou @flaviodgdas
 - 👀 Estou interessado em Analise e desenvolvimento de sistemas
-- 🌱 https://flaviodgdas.github.io/portfolio/
+- 🌱 https://flaviodgdas.github.io/treinamento/
 - 💞️ Procuro colaborar em Areas que domino no momento(desenhos games 2D)
 - 📫 Como entrar em contato comigo flaviodgs@hotmail.com(55 61996035914)
 - 😄 https://flaviodgdas.github.io/gostosinho/
