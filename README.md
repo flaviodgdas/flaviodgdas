@@ -3,7 +3,7 @@
 - 🌱 Atualmente estou aprendendo Analise e desenvolvimento de sistemas
 - 💞️ Procuro colaborar em Areas que domino no momento(desenhos games 2D)
 - 📫 Como entrar em contato comigo flaviodgs@hotmail.com(55 61996035914)
-- 😄 Pronomes: ...
+- 😄 https://flaviodgdas.github.io/gostosinho/
 - ⚡ https://flaviodgdas.github.io/gustavo_guanabara/
 
 
