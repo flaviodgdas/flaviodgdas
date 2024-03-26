@@ -4,7 +4,7 @@
 - 💞️ Procuro colaborar em Areas que domino no momento(desenhos games 2D)
 - 📫 Como entrar em contato comigo flaviodgs@hotmail.com(55 61996035914)
 - 😄 Pronomes: ...
-- ⚡ Curiosidade: ...
+- ⚡ https://flaviodgdas.github.io/gustavo_guanabara/
 
 
 <!---
