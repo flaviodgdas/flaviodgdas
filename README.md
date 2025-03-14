@@ -1,7 +1,7 @@
 - 👋 Olá, sou @flaviodgdas
 - 👀 Estou interessado em Analise e desenvolvimento de sistemas
 - =_= https://benevolent-cannoli-82ef89.netlify.app/<<<<< AQUI ALGUM TRABALHO<<<<<<
-- 🌱 https://(https://flaviodgdas.github.io/siteFlavio/)<<<<< AQUI ALGUM TRABALHO<<<<<<
+- 🌱 https://(https://flaviodgdas.github.io/siteFlavio/)<<<<< MEU SITE<<<<<<
 - 💞️ Procuro colaborar em Areas que domino no momento(desenhos games 2D)
 - 📫 Como entrar em contato comigo flaviodgs@hotmail.com(55 83987996582)
 - 😄 https://flaviodgdas.github.io/gostosinho/<<<<< AQUI ALGUM TRABALHO<<<<<<
