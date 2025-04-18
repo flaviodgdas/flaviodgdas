@@ -3,7 +3,7 @@
 - =_= https://benevolent-cannoli-82ef89.netlify.app/<<<<< AQUI ALGUM TRABALHO<<<<<<
 - 🌱 https://flaviodgdas.github.io/site-flavio/<<<<<< VEJA AQUI MEU SITE
 - 💞️ Procuro colaborar em Areas que domino no momento(desenhos games 2D)
-- 📫 Como entrar em contato comigo flaviodgs@hotmail.com(55 83987996582)
+- 📫 Como entrar em contato comigo flaviodgs@hotmail.com(55 61 998168269)
 - 😄 https://flaviodgdas.github.io/gostosinho/<<<<< AQUI ALGUM TRABALHO<<<<<<
 - ⚡ https://flaviodgdas.github.io/gustavo_guanabara/<<<<< AQUI ALGUM TRABALHO<<<<<<
 
