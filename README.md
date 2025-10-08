@@ -6,6 +6,7 @@
 - 📫 Como entrar em contato comigo flaviodgs@hotmail.com(55 61 998168269)
 - 😄 https://flaviodgdas.github.io/gostosinho/<<<<< AQUI ALGUM TRABALHO<<<<<<
 - ⚡ https://flaviodgdas.github.io/gustavo_guanabara/<<<<< AQUI ALGUM TRABALHO<<<<<<
+- 🌱 https://flaviodgdas.github.io/pititingueiro/ <<<<<<<<<<< CURRICULO <<<<<<<<<<<
 
 
 <!---
