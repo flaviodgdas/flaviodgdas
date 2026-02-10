@@ -6,7 +6,7 @@
 - 📫 Como entrar em contato comigo aminagamesctr2@gmail.com(55 83 999757661)
 - 😄 https://flaviodgdas.github.io/gostosinho/<<<<< AQUI ALGUM TRABALHO  DIVIRTA-SE <<<<<<
 - ⚡ https://flaviodgdas.github.io/gustavo_guanabara/<<<<< AQUI ALGUM TRABALHO DIVIRTA-SE<<<<<<
-- 🌱 https://flaviodgdas.github.io/pititingueiro/ <<<<<<<<<<< CURRICULO <<<<<<<<<<<
+- 🌱 https://flaviodgdas.github.io/opititinga/ <<<<<<<<<<< CURRICULO <<<<<<<<<<<
 
 
 <!---
